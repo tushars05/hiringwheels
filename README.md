@@ -1,1 +1,5 @@
-![Screenshot (5)](https://github.com/tushars05/hiringwheels/assets/90897608/b267f7dd-131e-40c8-a61a-a0ebee45ba96)
+![Screenshot (5)](https://github.com/tushars05/hiringwheels/assets/90897608/714b75a0-e75b-493e-9374-627ee0172237)
+![Screenshot (6)](https://github.com/tushars05/hiringwheels/assets/90897608/80cbb813-a1ed-4be4-9c7c-32cfa37164f9)
+![Screenshot (7)](https://github.com/tushars05/hiringwheels/assets/90897608/54af03f2-2c66-462b-9092-490d86b41b35)
+![Screenshot (8)](https://github.com/tushars05/hiringwheels/assets/90897608/ba710374-15a7-4f07-a1f7-bad8a78cb4d8)
+![Screenshot (9)](https://github.com/tushars05/hiringwheels/assets/90897608/8476a680-259d-4a03-b0fd-3ec26ef33f6f)
