@@ -3,3 +3,4 @@
 ![Screenshot (7)](https://github.com/tushars05/hiringwheels/assets/90897608/54af03f2-2c66-462b-9092-490d86b41b35)
 ![Screenshot (8)](https://github.com/tushars05/hiringwheels/assets/90897608/ba710374-15a7-4f07-a1f7-bad8a78cb4d8)
 ![Screenshot (9)](https://github.com/tushars05/hiringwheels/assets/90897608/8476a680-259d-4a03-b0fd-3ec26ef33f6f)
+![Screenshot (10)](https://github.com/tushars05/hiringwheels/assets/90897608/aba51adb-08dc-4e17-b740-745fee308b6c)
